@@ -1,1 +1,1 @@
-# thing
+Mans kods prieks eksamena
